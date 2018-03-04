@@ -1,0 +1,1 @@
+# Hugehard Solitaire Collection
